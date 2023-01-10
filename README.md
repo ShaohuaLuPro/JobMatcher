@@ -1,9 +1,11 @@
 # Job Matcher
 
-## our goal
+## Our goal
 
-## why us?
+### Saves time
 
-## contact us for collaboration
+## Why us?
+
+## Contact us for collaboration
 Phone number: 237-328-7664
 Email address: TOMLU1234567@GMAIL.COM
